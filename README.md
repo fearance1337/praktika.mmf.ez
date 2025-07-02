@@ -1,1 +1,1 @@
-# praktika.mmf.ez
+# praktika.github.io
